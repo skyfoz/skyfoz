@@ -16,4 +16,3 @@ skyfoz
 
 
 
-yes
