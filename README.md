@@ -3,7 +3,7 @@
 - By the way I like drinking tea
 
 I have a Yt channel ( with french garbage on it ):
-https://youtube.com/@skyfoz_?si=nX5UZQwyi5pj3h9T
+https://youtube.com/@skyfoz_
 
 You can reach me by discord:
 skyfoz
