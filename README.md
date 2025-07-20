@@ -1,4 +1,4 @@
-- Hi, I write some dumb code for unity and sometimes my projects
+- Hi, I write some dumb code for myself
 - Don't know why you would but if there something I could make for you don't hesitate to tell me
 - By the way I like drinking tea
 
